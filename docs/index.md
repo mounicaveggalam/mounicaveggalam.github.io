@@ -1,4 +1,4 @@
-## What is your BIG Dream?
+# What is your BIG Dream?
 
 What is something you want to achieve but are not taking action on?
 
@@ -12,14 +12,14 @@ I would love to hear you tell me all about your ~goals~ dreams!
 
 My superpower is to be your partner in creating the life you desire by playing BIG and winning on your own terms! Together we can explore what results you want, what's going well for you and what challenges you are facing. We will uncover the blocks stopping you from playing your game at an elite level. I will help you acheive a life of balancing and becoming!
 
-### Let's play!
+## Let's play!
 Send me a [**Hello!**](mounica.v8@gmail.com) to book a free 20 minute exploratory session!
 
-### Coaching with Mounica Veggalam
+## Coaching with Mounica Veggalam
 
 When you hire me as your coach, I am all in! Together we will co-create a winnable game plan, speak out loud and explore ways to strategically move towards the results you desire. I will help you embrace challenges with playfulness, build your confidence and take meaningful action. Through your game, I will help you make leaps in your personal growth as well.
 
-### Frequently asked questions
+## Frequently asked questions
 
 **So, what can I gain through coaching?** 
 
@@ -59,13 +59,13 @@ We will have 3 or 4 conversations each month, each lasting about 45-50 minutes. 
 
 Book an exploratory conversation with me anyway! Sometimes (dare I say Often), time shortage comes with a lack of clarity and strategy in your dreams. Let us explore together to see how you can create more space for your dreams. Working on YOURSELF is the best investment of your time!
 
-### About Me
+## About Me
 
 ![Mounica Veggalam](https://drive.google.com/file/d/1HG5ctgeCWy9eAxBTm4gDOGk-pbYLqSzz/view?usp=sharing)
 
 I am fascinated by all things high performance and acheiving a life of fulfillment while maximizing happiness. I am on my own personal growth journey and I have transformed how I live my life. I live with choice, freedom and a background of peace. I approach my life as play and enjoy the game thoroughly. 
 
-### Testimonials
+## Testimonials
 
 ```markdown
 Quote
