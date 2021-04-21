@@ -47,6 +47,10 @@ I would love to talk to you if you are
 
 No, coaching is not therapy. While both are very valuable in moving you past roadblocks in life, their approaches differ in many ways. Coaching is about taking you from where you are now and moving you forward. Therapy often involves extensively examining your past to define how you got here in the first place. Finally, and foremost, coaches do not diagnose or treat any psychiatric disorders.
 
+**So, is this a course?**
+
+No, coaching is individualised whereas courses are designed in a generic way. We will only talk about you, the unique YOU. I do not claim to be an expert in life to teach you anything. Although, I will provide space for you to be, become and grow as you want to. We together will co-create what YOU need. 
+
 **How long should I expect to need a coach?**
 
 The average amount of time varies based on the situation. I request a 3 month minimum commitment. I find that it allows your success to evolve more rapidly since our relationship has some time to grow. If we are both still benefiting from the relationship, we can keep renewing as you continue on your games of your life.
@@ -61,7 +65,7 @@ Book an exploratory conversation with me anyway! Sometimes (dare I say Often), t
 
 ## About Me
 
-![Mounica Veggalam](https://drive.google.com/file/d/1HG5ctgeCWy9eAxBTm4gDOGk-pbYLqSzz/view?usp=sharing)
+![Mounica Veggalam](MounicaPic.jpeg)
 
 I am fascinated by all things high performance and acheiving a life of fulfillment while maximizing happiness. I am on my own personal growth journey and I have transformed how I live my life. I live with choice, freedom and a background of peace. I approach my life as play and enjoy the game thoroughly. 
 
