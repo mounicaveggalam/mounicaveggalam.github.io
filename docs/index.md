@@ -65,7 +65,7 @@ Book an exploratory conversation with me anyway! Sometimes (dare I say Often), t
 
 ## About Me
 
-![Mounica Veggalam](MounicaPic.jpeg)
+![Mounica Veggalam](MounicaV.jpeg)
 
 I am fascinated by all things high performance and acheiving a life of fulfillment while maximizing happiness. I am on my own personal growth journey and I have transformed how I live my life. I live with choice, freedom and a background of peace. I approach my life as play and enjoy the game thoroughly. 
 
