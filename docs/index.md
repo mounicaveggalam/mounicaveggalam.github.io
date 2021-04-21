@@ -6,7 +6,7 @@ Do you want to level up your game?
 
 Do you feel overwhelmed by all that you want to do?
 
-What are your superpowers?
+Do you know what your superpowers are?
 
 I would love to hear you tell me all about your ~goals~ dreams!
 
@@ -67,7 +67,7 @@ Book an exploratory conversation with me anyway! Sometimes (dare I say Often), t
 
 ![Mounica Veggalam](MounicaV.jpg)
 
-I am fascinated by all things high performance and acheiving a life of fulfillment while maximizing happiness. I am on my own personal growth journey and I have transformed how I live my life. I live with choice, freedom and a background of peace. I approach my life as play and enjoy the game thoroughly. 
+I am fascinated by all things high performance and acheiving a life of fulfillment while maximizing happiness. I am on my own personal growth journey and I have transformed how I live my life. I have gone from being a stressed out knowledge worker to a player living with choice, freedom and a background of peace. I approach my life as play and enjoy the game thoroughly. When I am not coaching and championing people, you will find me writing, learning about personal growth and exploring life with immense curiosity! 
 
 ## Testimonials
 
