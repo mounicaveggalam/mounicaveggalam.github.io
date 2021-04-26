@@ -13,7 +13,8 @@ I would love to hear you tell me all about your ~goals~ dreams!
 My superpower is to be your partner in creating the life you desire by playing BIG and winning on your own terms! Together we can explore what results you want, what's going well for you and what challenges you are facing. We will uncover the blocks stopping you from playing your game at an elite level. I will help you acheive a life of balancing and becoming!
 
 ## Let's play!
-Send me a [**Hello!**](mounica.v8@gmail.com) to book a free 20 minute exploratory session!
+
+``Send me a [**Hello!**](mounica.v8@gmail.com) to book a free 20 minute exploratory session!``
 
 ## Coaching with Mounica Veggalam
 
@@ -23,7 +24,13 @@ When you hire me as your coach, I am all in! Together we will co-create a winnab
 
 **So, what can I gain through coaching?** 
 
-Coaching results in **having less** of *Fear / Frustration / Doubt / Confusion / Overwhelm / Indecision* and **having more** of *Joy / Confidence / Balance / Peace / Clarity / Action / Time / Fun / Productivity / Freedom / Courage*.
+Coaching results in **having less** of 
+
+``*Fear / Frustration / Doubt / Confusion / Overwhelm / Indecision*``
+
+and **having more** of 
+
+``*Joy / Confidence / Balance / Peace / Clarity / Action / Time / Fun / Productivity / Freedom / Courage*``
 
 **How will you help me do that?**
 
@@ -72,5 +79,5 @@ I am fascinated by all things high performance and acheiving a life of fulfillme
 ## Testimonials
 
 ```markdown
-Quote
+Coming Soon!
 ```
